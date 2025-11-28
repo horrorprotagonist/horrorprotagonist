@@ -10,6 +10,6 @@ c + h ⠀is⠀always⠀welcome!
 
 <p align="center"
 
-[rentry](https://rentry.co/90s-web)⠀⠀[prns.cc](https://pronouns.cc/@cctv/jonah)⠀⠀[discord](https://guns.lol/phasmophobic)
+[rentry](https://rentry.co/90s-web)⠀⠀[prns.cc](https://pronouns.cc/@cctv/jonah)⠀⠀[discord](https://guns.lol/vhs)
   
 </p>
